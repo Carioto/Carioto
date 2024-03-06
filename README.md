@@ -1,0 +1,6 @@
+- 👋 Hi, I’m David Carioto ... GitHub user @Carioto.
+- 👀 I’m interested in building my knowledge on GitHub.
+- 🌱 I’m currently learning Full Stack Flex Coding.
+- 💞️ I’m looking to collaborate on basic coding at this time.
+- 📫 How to reach me dcarioto114@outlook.com
+- ⚡ Fun fact: In food industry for 25 years moving into coding field with zealous.
