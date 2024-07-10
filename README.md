@@ -3,4 +3,4 @@
 - 🌱 I have completed a course in Full Stack Flex Coding at UPenn.
 - 💞️ I’m looking to collaborate on basic coding at this time.
 - 📫 How to reach me dcarioto114@outlook.com
-- ⚡ Fun fact: In food industry for 25 years moving into coding field with zealous.
+- ⚡ Fun fact: In food industry for 25 years and eagerly moving into coding field .
